@@ -1,0 +1,1 @@
+# my POPOS ricing settings
